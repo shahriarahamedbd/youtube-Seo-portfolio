@@ -1,3 +1,6 @@
+## 🤝 Client Strategy Meeting
+YouTube SEO & Growth Strategy Consultation.
+![Client Strategy Meeting](./CLIENT%20STRATEGY%20MEETING%20YouTube%20SEO%20%26%20Growth%20Consultation%20(2).png)
 YouTube SEO &amp; Growth Case Studies | Channel Optimization | Keyword Research
 # YouTube SEO & Growth Portfolio
 
