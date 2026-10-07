@@ -27,7 +27,10 @@ Hi, I'm Shahriar Ahmed — a Digital Marketing & YouTube SEO Specialist helping 
 ### YouTube Monetization Setup
 ![YouTube Monetization](./YouTube%20Monetization%20Setup.png)
 
-## 📩 Contact
+## 📩 Contact Me
 
 **Shahriar Ahmed**  
 Digital Marketing & YouTube SEO Specialist
+
+🌐 Portfolio: [View My Portfolio](https://sites.google.com/view/shahariar-ahamed/home)  
+📱 WhatsApp: [Chat with me](https://wa.me/8801581909821)
